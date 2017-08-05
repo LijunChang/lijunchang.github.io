@@ -1,1 +1,1 @@
-# Lijun Chang's persnal homepage.
+# Lijun Chang's personal homepage.
